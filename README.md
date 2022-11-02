@@ -1,1 +1,2 @@
 # https-nexmaker-fab.github.io-2022zjudem-team4-AboutUs-Hirsi
+I am hersi, I have batchelar degree in mechanical engineering from Hormuud university. From 2019 to 2021 I worked as plumbing design engineer at Modern plumbing and maintenance company and from 2020 till now I am working as Assistant lecturer at Somali national University. Now I am doing profesional master degree, Industrial design engineering at Zhejiang University.
